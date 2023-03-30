@@ -12,8 +12,4 @@ F UWEGSELUIFGLIDYAFXGHSDBIFJNJILGRAHSLDEFIVD
   uggkj\
   uytygv
 eufgwuerf vjwgeg
-75675875
-65765
-ihoihj
-789
-5
+
